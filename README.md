@@ -12,3 +12,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 
 <img src = "https://media.tenor.com/OUoL80mtdksAAAAe/zesty-pinoy-meme.png">
+<img src = "https://pinoymemes.weebly.com/uploads/1/7/6/4/17643775/628303212.jpg">
+<imh src "https://pinoymemes.weebly.com/uploads/1/7/6/4/17643775/722642326.jpeg?349">
